@@ -1,9 +1,1 @@
-giggles and shits
-leave me the fuck alone
-i hate myself
-i love hot vampire werewolf men
-i love men
-bye
-get out
-leave
-bitch ass
+big booty balls epic gamer cool coder so cool omggg woww am soo epic
