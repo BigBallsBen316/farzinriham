@@ -1,1 +1,1 @@
-am soo epic cool gamer coder pro epic the cool
+Hi! I'm Farzin Riham! Here you will find all of my computer science projects that I've done!
